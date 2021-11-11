@@ -1,1 +1,0 @@
-# JordanVirola.github.io
